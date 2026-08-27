@@ -1,1 +1,0 @@
-# R-F-Solu-es-em-Obras
